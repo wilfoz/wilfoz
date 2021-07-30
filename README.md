@@ -1,4 +1,4 @@
-## Olá! Eu sou a Wilerson A. Rufino
+## Olá! Eu sou o Wilerson A. Rufino
 
 
 <div>
