@@ -1,5 +1,5 @@
 
-## Olá! Eu sou o Wilerson A. Rufino - ADS e Graduando em Engenharia de Software.
+## Olá! Eu sou o Wilerson A. Rufino - Engenheiro de Software.
 
 <div>
   <picture>
